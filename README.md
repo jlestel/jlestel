@@ -10,7 +10,7 @@
 
 🧠 Improving my skills in golang, solidity
 
-👤 LinkedIn: https://www.linkedin.com/in/barrettkowalsky/
+👤 LinkedIn: https://www.linkedin.com/in/julienlestel/
 
 📫 Email me: jlestel@gmail.com
 
