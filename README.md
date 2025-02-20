@@ -12,7 +12,7 @@
 
 👤 LinkedIn: https://www.linkedin.com/in/barrettkowalsky/
 
-📫 Email me: guestwhat@gmail.com
+📫 Email me: jlestel@gmail.com
 
 ⚡ Fun fact: I have already contributed to the scale of different companies sold at +100M
 
